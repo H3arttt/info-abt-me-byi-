@@ -14,12 +14,12 @@
   
  2. 𝑭𝒂𝒏𝒅𝒐𝒎𝒔 𝑰'𝒎 𝒊𝒏: 
    
-    * Genshin, Hellsing OVA/ Ultimate, CRP, Trinity Blood, BTD, HSR, DMCB, Monster High, HTF, ERSATZ, LIS, Chainsmoker Cat, Tokyo Ghoul, Poppee the Performer, Vampire Hunter D, FNaF, BATIM.
+    * Genshin, Hellsing OVA/ Ultimate, CRP, Trinity Blood, BTD, Frost bite, HSR, DMCB, Monster High, HTF, ERSATZ, LIS, Chainsmoker Cat, Tokyo Ghoul, Poppee the Performer, Vampire Hunter D, FNaF, BATIM, MLP.
 
  3. 𝑺𝒉𝒊𝒑𝒔: 
  
-    * I also like rarepair ships
-    * I rarely ship characters (unless it's canon; then it's more likely for me to ship the characters), so there are only a few that I like: Dottolone, DottoZhu, ZhongZhu, Flauma, Seras x Bernadotte, BeiGuang, JeanLuc, JeaLisa, argenthill, Akira x Miki, Kaim x Silene, PriceField.
+    * I like rarepair ships
+    * I rarely ship characters so there are only a few that I like: Dottolone, DottoZhu, ZhongZhu, Flauma, Seras x Bernadotte, BeiGuang, JeanLuc, JeaLisa, argenthill, PriceField.
     * I don't view the ships that I like in a sexual way. For me, they're more about emotional and intellectual intimacy, like talking with each other, trusting one another, feeling comfortable enough to be vulnerable, and sharing quiet moments.
     * I dislike: Zhongchi, Varflins, Kavetham, any ship with Integra or Alucard, CynoNari, any ship with Neuvillette. 
     * If I didn't mention any other ships, then I simply don't ship them, or I'm neutral about them. (Obviously, I don't support any proships)
