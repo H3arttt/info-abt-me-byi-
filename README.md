@@ -1,5 +1,5 @@
-# 𝐢𝐧𝐟𝐨 𝐚𝐛𝐭 𝐦𝐞 𝐛𝐲𝐢 ꨄ︎ #
 
+# 𝐢𝐧𝐟𝐨 𝐚𝐛𝐭 𝐦𝐞 𝐛𝐲𝐢 ꨄ︎ #
  𓆙 interactions/ boundaries:
 
    * DNI if you are a minor.
