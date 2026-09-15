@@ -23,3 +23,4 @@
     * I don't view the ships that I like in a sexual way. For me, they're more about emotional and intellectual intimacy, like talking with each other, trusting one another, feeling comfortable enough to be vulnerable, and sharing quiet moments.
     * I dislike: Zhongchi, Varflins, Kavetham, any ship with Integra or Alucard, CynoNari, any ship with Neuvillette, Lawren.
     * If I didn't mention any other ships, then I simply don't ship them, or I'm neutral about them. (Obviously, I don't support any proships)
+    * Ofcourse i dont mind people who like those ships (the ones that i dislike) to int with me, I just dislike the ship I dont have anything against the people who like them.<3
