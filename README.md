@@ -1,6 +1,8 @@
 
 # 𝐢𝐧𝐟𝐨 𝐚𝐛𝐭 𝐦𝐞 𝐛𝐲𝐢 ꨄ︎ #
 
+<img width="950" height="100" alt="!   baizhu" src="https://github.com/user-attachments/assets/526b9f7c-f43e-4087-8a0a-6525c13b0fb4" />
+
 
 
  1. ˚˖𓍢ִ໋❀ 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔/ 𝒃𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔:
@@ -31,3 +33,10 @@
  4. ˚˖𓍢ִ໋❀ 𝑾𝒉𝒂𝒕𝒔 𝒐𝒏 𝒎𝒚 𝒉𝒆𝒂𝒅𝒑𝒉𝒐𝒏𝒆𝒔?
     
     [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313gevbdyecp3aknblcvaycgqg34&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=924eb1&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+
+
+<img width="950" height="100" alt="22518066882241422" src="https://github.com/user-attachments/assets/00f3666a-adf2-48fa-89d8-bd20f471fb0d" />
+
+
+
+    
