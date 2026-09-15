@@ -1,6 +1,6 @@
 
 # 𝐢𝐧𝐟𝐨 𝐚𝐛𝐭 𝐦𝐞 𝐛𝐲𝐢 ꨄ︎ #
- 1. 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔/ 𝒃𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔:
+ 1. ˚˖𓍢ִ໋❀ 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏𝒔/ 𝒃𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔:
 
     * DNI if you are a minor.
     * I'm an introvert, so it takes a while for me to adjust when meeting someone new. 
@@ -12,15 +12,15 @@
     * Please don't force any ships onto me.
   
   
- 2. 𝑭𝒂𝒏𝒅𝒐𝒎𝒔 𝑰'𝒎 𝒊𝒏: 
+ 2. ˚˖𓍢ִ໋❀ 𝑭𝒂𝒏𝒅𝒐𝒎𝒔 𝑰'𝒎 𝒊𝒏: 
    
-    * Genshin, Hellsing OVA/ Ultimate, CRP, Trinity Blood, BTD, Frost bite, HSR, DMCB, Monster High, HTF, ERSATZ, LIS, Chainsmoker Cat, Tokyo Ghoul, Poppee the Performer, Vampire Hunter D, FNaF, BATIM, MLP.
+    * Genshin, Hellsing OVA/ Ultimate, CRP, Trinity Blood, BTD, Frostbite, HSR, DMCB, Monster High, HTF, ERSATZ, LIS, Chainsmoker Cat, Tokyo Ghoul, Poppee the Performer, Vampire Hunter D, FNaF, BATIM, MLP.
 
- 3. 𝑺𝒉𝒊𝒑𝒔: 
+ 3. ˚˖𓍢ִ໋❀ 𝑺𝒉𝒊𝒑𝒔: 
  
     * I like rarepair ships
-    * I rarely ship characters so there are only a few that I like: Dottolone, DottoZhu, ZhongZhu, Flauma, Seras x Bernadotte, BeiGuang, JeanLuc, JeaLisa, argenthill, PriceField.
-    * I don't view the ships that I like in a sexual way. For me, they're more about emotional and intellectual intimacy, like talking with each other, trusting one another, feeling comfortable enough to be vulnerable, and sharing quiet moments.
+    * I rarely ship characters; there are only a few that I like: Dottolone, DottoZhu, ZhongZhu, Flauma, Seras x Bernadotte, BeiGuang, JeanLuc, JeaLisa, argenthill, PriceField.
+    * I don't view the ships that I like sexually. For me, they're more about emotional and intellectual intimacy, like talking with each other, trusting one another, feeling comfortable enough to be vulnerable, and sharing quiet moments.
     * I dislike: Zhongchi, Varflins, Kavetham, any ship with Integra or Alucard, CynoNari, any ship with Neuvillette, Lawren.
-    * If I didn't mention any other ships, then I simply don't ship them, or I'm neutral about them. (Obviously, I don't support any proships)
-    * Ofcourse i dont mind people who like those ships (the ones that i dislike) to int with me, I just dislike the ship I dont have anything against the people who like them, just be respectful about the fact that they are not my favourite. (BUT PLEASE DNI if you are a proshipper.)
+    * If I didn't mention any other ships, then I don't ship them, or I'm neutral about them. (Obviously, I don't support any proships)
+    * Of course, I don't mind people who like those ships (the ones that I dislike) interacting with me; I just dislike the ship. I don't have anything against the people who like them; just be respectful about the fact that they are not my favourite. (BUT PLEASE DNI if you are a proshipper.)
