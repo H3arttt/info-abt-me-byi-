@@ -1,7 +1,7 @@
 
 # 𝐢𝐧𝐟𝐨 𝐚𝐛𝐭 𝐦𝐞 𝐛𝐲𝐢 ꨄ︎ #
 
-<img width="950" height="100" alt="!   baizhu" src="https://github.com/user-attachments/assets/526b9f7c-f43e-4087-8a0a-6525c13b0fb4" />
+<img width="950" height="90" alt="!   baizhu" src="https://github.com/user-attachments/assets/526b9f7c-f43e-4087-8a0a-6525c13b0fb4" />
 
 
 
@@ -33,14 +33,7 @@
      * 𝐼𝑓 𝐼 𝑑𝑖𝑑𝑛'𝑡 𝑚𝑒𝑛𝑡𝑖𝑜𝑛 𝑎𝑛𝑦 𝑜𝑡ℎ𝑒𝑟 𝑠ℎ𝑖𝑝𝑠, 𝑡ℎ𝑒𝑛 𝐼 𝑑𝑜𝑛'𝑡 𝑠ℎ𝑖𝑝 𝑡ℎ𝑒𝑚, 𝑜𝑟 𝐼'𝑚 𝑛𝑒𝑢𝑡𝑟𝑎𝑙 𝑎𝑏𝑜𝑢𝑡 𝑡ℎ𝑒𝑚. (𝑂𝑏𝑣𝑖𝑜𝑢𝑠𝑙𝑦, 𝐼 𝑑𝑜𝑛'𝑡 𝑠𝑢𝑝𝑝𝑜𝑟𝑡 𝑎𝑛𝑦 𝑝𝑟𝑜𝑠ℎ𝑖𝑝𝑠)
      * 𝑂𝑓 𝑐𝑜𝑢𝑟𝑠𝑒, 𝐼 𝑑𝑜𝑛’𝑡 𝑚𝑖𝑛𝑑 𝑝𝑒𝑜𝑝𝑙𝑒 𝑤ℎ𝑜 𝑙𝑖𝑘𝑒 𝑡ℎ𝑒 𝑠ℎ𝑖𝑝𝑠 𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡𝑖𝑛𝑔 𝑤𝑖𝑡ℎ 𝑚𝑒; 𝐼 𝑗𝑢𝑠𝑡 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑡ℎ𝑒 𝑠ℎ𝑖𝑝𝑠 𝑡ℎ𝑒𝑚𝑠𝑒𝑙𝑣𝑒𝑠. 𝐼 ℎ𝑎𝑣𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔 𝑎𝑔𝑎𝑖𝑛𝑠𝑡 𝑡ℎ𝑒 𝑝𝑒𝑜𝑝𝑙𝑒 𝑤ℎ𝑜 𝑒𝑛𝑗𝑜𝑦 𝑡ℎ𝑒𝑚, 𝑎𝑛𝑑 𝐼’𝑚 𝑡𝑜𝑡𝑎𝑙𝑙𝑦 𝑓𝑖𝑛𝑒 𝑤𝑖𝑡ℎ 𝑡𝑎𝑙𝑘𝑖𝑛𝑔 𝑎𝑏𝑜𝑢𝑡 𝑡ℎ𝑜𝑠𝑒 𝑠ℎ𝑖𝑝𝑠 𝑤𝑖𝑡ℎ 𝑦𝑜𝑢, ℎ𝑒𝑎𝑟𝑖𝑛𝑔 𝑦𝑜𝑢𝑟 𝑜𝑝𝑖𝑛𝑖𝑜𝑛𝑠, ℎ𝑒𝑎𝑑𝑐𝑎𝑛𝑜𝑛𝑠, 𝑖𝑛𝑡𝑒𝑟𝑝𝑟𝑒𝑡𝑎𝑡𝑖𝑜𝑛𝑠, 𝑒𝑡𝑐. 𝑌𝑜𝑢’𝑟𝑒 𝑤𝑒𝑙𝑐𝑜𝑚𝑒 𝑡𝑜 𝑠ℎ𝑎𝑟𝑒 𝑡ℎ𝑒𝑚 𝑤𝑖𝑡ℎ 𝑚𝑒! 𝐴𝑙𝑙 𝐼 𝑎𝑠𝑘 𝑖𝑠 𝑡ℎ𝑎𝑡 𝑦𝑜𝑢 𝑟𝑒𝑠𝑝𝑒𝑐𝑡 𝑡ℎ𝑒 𝑓𝑎𝑐𝑡 𝑡ℎ𝑎𝑡 𝑡ℎ𝑒𝑦’𝑟𝑒 𝑛𝑜𝑡 𝑚𝑦 𝑓𝑎𝑣𝑜𝑢𝑟𝑖𝑡𝑒𝑠 𝑎𝑛𝑑 𝑡ℎ𝑎𝑡 𝐼 𝑚𝑎𝑦 𝑛𝑜𝑡 𝑎𝑔𝑟𝑒𝑒 𝑤𝑖𝑡ℎ 𝑦𝑜𝑢𝑟 𝑡𝑎𝑘𝑒𝑠. 𝐷𝑖𝑠𝑙𝑖𝑘𝑖𝑛𝑔 𝑎 𝑠ℎ𝑖𝑝 𝑑𝑜𝑒𝑠𝑛’𝑡 𝑚𝑒𝑎𝑛 𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑡ℎ𝑒 𝑝𝑒𝑜𝑝𝑙𝑒 𝑤ℎ𝑜 𝑠ℎ𝑖𝑝 𝑖𝑡, 𝑠𝑜 𝑝𝑙𝑒𝑎𝑠𝑒 𝑑𝑜𝑛’𝑡 𝑓𝑒𝑒𝑙 𝑙𝑖𝑘𝑒 𝑦𝑜𝑢 ℎ𝑎𝑣𝑒 𝑡𝑜 𝑎𝑣𝑜𝑖𝑑 𝑡𝑎𝑙𝑘𝑖𝑛𝑔 𝑎𝑏𝑜𝑢𝑡 𝑡ℎ𝑒𝑚 𝑎𝑟𝑜𝑢𝑛𝑑 𝑚𝑒. (𝑃𝑙𝑒𝑎𝑠𝑒 𝐷𝑁𝐼 𝑖𝑓 𝑦𝑜𝑢 𝑎𝑟𝑒 𝑎 𝑝𝑟𝑜𝑠ℎ𝑖𝑝𝑝𝑒𝑟.)
    
-<img width="950" height="90" alt="608267493467981037" src="https://github.com/user-attachments/assets/85c3082d-4fce-4b66-8ce5-328470483f29" />
-
-4. ˚˖𓍢ִ໋❀ 𝑾𝒉𝒂𝒕𝒔 𝒐𝒏 𝒎𝒚 𝒉𝒆𝒂𝒅𝒑𝒉𝒐𝒏𝒆𝒔?
-    
-    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313gevbdyecp3aknblcvaycgqg34&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=924eb1&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
-
-
-<img width="950" height="100" alt="22518066882241422" src="https://github.com/user-attachments/assets/00f3666a-adf2-48fa-89d8-bd20f471fb0d" />
+<img width="950" height="90" alt="22518066882241422" src="https://github.com/user-attachments/assets/00f3666a-adf2-48fa-89d8-bd20f471fb0d" />
 
 
 
